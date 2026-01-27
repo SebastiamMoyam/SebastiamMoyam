@@ -23,7 +23,7 @@ Soy egresado de Matemáticas con interés en el análisis de datos, la ciencia d
 ## 🚀 Objetivo profesional
 Busco mi primera oportunidad profesional en el sector IT como analista de datos o rol junior afín, donde pueda aportar desde mis habilidades técnicas iniciales y seguir creciendo en entornos orientados a datos y aprendizaje continuo.
 
-🔗 [LinkedIn](www.linkedin.com/in/sebastian-moya-670584196/)
+🔗 [LinkedIn](https://www.linkedin.com/in/sebastian-moya-670584196/)
 
 
 
